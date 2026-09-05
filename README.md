@@ -1,0 +1,1 @@
+# samoan-bible-privacy-policy
